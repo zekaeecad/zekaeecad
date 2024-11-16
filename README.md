@@ -1,0 +1,1 @@
+Freelance Mechanical Design Engineer | 20+ Years of Experience in Industrial Machinery, Packaging, and Production Line Equipment Design 🔹 Helping Clients Innovate & Optimize with Tailored Engineering Designs
